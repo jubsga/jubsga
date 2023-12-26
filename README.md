@@ -7,7 +7,7 @@ Systems Development Technician
 * 🥳 I'm 17 years old. 
 * 😊 I am dedicated and responsible.
 * 🌍 São Paulo.
-* 💻 I'm completing high school integrated with the Internet IT Technician.
+* 💻 Recently completed high school integrated with the Internet Computer Technician.
 * ✉️ You can contact me at [julia.almeidaof0@gmail.com](mailto:julia.almeidaof0@gmail.com)
 
 ### Skills
